@@ -12,4 +12,7 @@ J'ai vu des femmes nue partout.
 Qu'est ce que j'étais heureux!   
 Un peu intimidé mais prêt à en profiter.  
 J'ai donc décidé de commencer à leur parler. 
-
+A mon grand étonnement, c'était des ladyboys car je voyais quelque
+chose pendouiller entre ses jolies jambes...
+Curieux de nature, je décide quand même de tenter une aventure
+avec l'une d'entre-elles.
