@@ -8,5 +8,8 @@ Et dessous il y avais un monde enchanté avec ,
 Plein de ponneys qui courent partout .
 J'ai ensuite été voir un chamane.
 Il m'a fait un sort vaudou,
-J'ai vu des femmes nue partout.
+J'ai vu des femmes nue partout.  
+Qu'est ce que j'étais heureux!   
+Un peu intimidé mais prêt à en profiter.  
+J'ai donc décidé de commencer à leur parler. 
 
