@@ -3,16 +3,18 @@
 Quand j'étais plus jeune, j'aimais bien visiter des maisons abandonnées.  
 Un jour, mes amis m'ont proposé d'aller dans une maison non loin de chez moi.  
 Je n'oublierai jamais ce qu'il s'est passé ce jour-là.  
-ce jour-là la maison est tombée en morceaux .
-Et dessous il y avais un monde enchanté avec ,
-Plein de ponneys qui courent partout .
-J'ai ensuite été voir un chamane.
-Il m'a fait un sort vaudou,
+Ce jour-là, la maison est tombée en morceaux.  
+Et en dessous, il y avait un monde enchanté,  
+Remplit de poneys qui couraient partout.  
+J'ai ensuite été voir un chaman.
+Il m'a lancé un sort vaudou et,
 J'ai vu des femmes nue partout.  
-Qu'est ce que j'étais heureux!   
+Qu'est-ce que j'étais heureux!   
 Un peu intimidé mais prêt à en profiter.  
-J'ai donc décidé de commencer à leur parler. 
-A mon grand étonnement, c'était des ladyboys car je voyais quelque
-chose pendouiller entre ses jolies jambes...
-Curieux de nature, je décide quand même de tenter une aventure
-avec l'une d'entre-elles. Apres toute attente j'ai asser bien aimer. mais sur pour sur je ne le retenterai plus.
+J'ai donc décidé de commencer à leur parler.  
+A mon grand étonnement, c'était des ladyboys car je voyais quelque  
+chose pendouiller entre leurs jolies jambes...  
+Curieux de nature, je décide quand même de tenter ma chance  
+avec l'une d'entre-elles.  
+Contre toute attente, j'ai plûtot bien aimé.  
+Mais je me suis fait la promesse que je ne le retenterai plus jamais.  
